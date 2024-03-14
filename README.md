@@ -23,6 +23,10 @@
   - i will start in asia then africa need a ecosysteme ,,,
   - have good time , life , head . heard ,thinks .... and all can be all right @ALL
 
+
+sathub.tech
+satb.tech
+iosat.online 
 <!---
 sATOSHI08154/sATOSHI08154 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
