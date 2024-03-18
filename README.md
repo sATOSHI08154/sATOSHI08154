@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sATOSHI08154
+- 👋 Hi, I’m @MEOSHI
 - 👀 I’m interested in DAO DEXE DESENTRALIZED FINANCE
 - 🌱 I’m currently learning CODING DAO
 - 💞️ I’m looking to collaborate on NICE WORLD
@@ -23,8 +23,7 @@
   - i will start in asia then africa need a ecosysteme ,,,
   - have good time , life , head . heard ,thinks .... and all can be all right @ALL
 
-
-sathub.tech
+MEOSHIBANK.COM
 satb.tech
 iosat.online 
 <!---
